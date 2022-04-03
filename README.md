@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CHaOSFrozen
+- 👋 Hi, I’m @Sakin Khan
 - 👀 I’m interested in coding and all thing business
 - 🌱 I’m currently learning SQL
 - 📫 How to reach me: @khaosfrozen on all social platforms; khansakin255@gmail.com
